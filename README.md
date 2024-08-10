@@ -1,6 +1,6 @@
-# Página Antés y Después:
+# Página Antes y Después:
 
-## Antés:
+## Antes:
 
 ![image](https://github.com/user-attachments/assets/2c09eae8-aa25-44b8-add8-582b2587cdd2)
 
